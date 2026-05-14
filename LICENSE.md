@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows top Extension: proxy-editing & keyframe-animation offers the most advanced Shotcut for PC | Shotcut for Windows extension, with proxy-editing
 
 
 
